@@ -1,2 +1,0 @@
-# zenmyit.com
-zenmyit.com
